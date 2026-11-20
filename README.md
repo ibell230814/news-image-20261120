@@ -8,7 +8,7 @@ One image summing up Friday 20 November 2026 in world news: Trump putting the Ir
 
 ## What's in the picture
 
-A front page dated Friday 20 November 2026, six stories first reported that day:
+A front page dated Friday 20 November 2026, six stories from the week's wires, led by Friday's news:
 
 1. **Lead — Washington:** Trump says the US will "see what happens" on Iran after January 1; no rush on the decision while the Gulf build-up goes on.
 2. **Shenzhen fallout:** Putin vows a "much more painful" reply over the Kerch Bridge strikes, hours after signing a peace declaration with Trump and Xi that never mentions Ukraine.
